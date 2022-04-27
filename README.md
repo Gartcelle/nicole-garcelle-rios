@@ -1,2 +1,2 @@
-# nicole-garcelle-rios
+# nicole-garcelle-rios-cubillas
 Página web para Laboratorio de Innovación 2
